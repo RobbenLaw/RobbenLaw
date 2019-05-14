@@ -1,2 +1,2 @@
-Hello, new world, I am Robben Law. By the way, I hate chemisry!
-Anyway, Whatever, 就是干
+Hello, new world, I am Robben Law. By the way, I hate chemistry!
+Anyway, Whatever, just FucK
